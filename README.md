@@ -11,7 +11,7 @@ Basic DNI stuff
 <br>
 DSMP fans (r there even any atp???)
 <br>
-Fujoshis / Himejoshis (GENUINELY BLOCK ME 😰)
+Fujoshis / Himejoshis
 <br>
 Coffin of Andy and Leyley fans
 <br>
